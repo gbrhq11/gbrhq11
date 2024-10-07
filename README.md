@@ -4,7 +4,6 @@
 - 🌱 I’m currently learning Industrial Mechanic and React and Node.js frameworkc at SENAI
 - 📫 How to reach me person e-mail gabrielhenriquelfcbarcelona@gmail.com
 - 😄 Pronouns:He/his
-GOSTO DE HOMENS
 
 
 <!---
