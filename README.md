@@ -3,8 +3,7 @@
   
 - 🌱 I’m currently learning Industrial Mechanic and React and Node.js frameworkc at SENAI
 - 📫 How to reach me person e-mail gabrielhenriquelfcbarcelona@gmail.com
-- 😄 Pronouns: Hi/Him or ElU/Delu
-EU SOU GAY
+- 😄 Pronouns:He/his
 GOSTO DE HOMENS
 
 
