@@ -1,8 +1,11 @@
 - 👋 Hi, I’m @gbrhq11
 - 👀 I’m interested in technologies and mecanic
+  
 - 🌱 I’m currently learning Industrial Mechanic and React and Node.js frameworkc at SENAI
 - 📫 How to reach me person e-mail gabrielhenriquelfcbarcelona@gmail.com
-- 😄 Pronouns: Hi/Him or Ele/Dele
+- 😄 Pronouns: Hi/Him or ElU/Delu
+EU SOU GAY
+GOSTO DE HOMENS
 
 
 <!---
